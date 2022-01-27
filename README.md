@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ALi Kaisar
 - 🌱 I’m currently learning ... for the first time a bout computers. wish me luck.
-- 💞️ I’m looking people who like to teach others coz i need help.
+- 💞️ I’m looking for people who like to teach others coz i need help.
 - 📫 How to reach me ... here
 
 <!---
